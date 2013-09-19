@@ -35,9 +35,11 @@ This is not a fashionable place, providing traditional Japanese food for serious
 
 My favorite restaurant in Kyoto, but decor is not impressive at all. That's a problem for tourist, I guess.
 
+http://tabelog.com/kyoto/A2603/A260301/26001119/
+
 ## Tempura Yasaka Endo (八坂圓堂 (えんどう))
 
-Fancy Tempura restaurant. I've been here once. Dinner is bit overpriced, but lunch can be a nice choice. http://www.gion-endo.com/menu_lunch.html
+Fancy Tempura restaurant. I've been here once. Dinner is bit overpriced, but lunch can be a nice choice. http://www.gion-endo.com/english/menu_lunch.html
 
 # Bars
 
