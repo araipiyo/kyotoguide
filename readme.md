@@ -33,9 +33,11 @@ Lunch is usually much cheaper than Dinner, so maybe it's wise to try expensive r
 
 This is not a fashionable place, providing traditional Japanese food for serious foodies. If you'd like to try top notch Japanese food, this is the place, but price is quite expensive (around 150-200 USD per person). Reservation recommended.
 
-## Endo (遠藤)
+My favorite restaurant in Kyoto, but decor is not impressive at all. That's a problem for tourist, I guess.
 
-Fancy Tempura restaurant. I've been here once.
+## Tempura Yasaka Endo (八坂圓堂 (えんどう))
+
+Fancy Tempura restaurant. I've been here once. Dinner is bit overpriced, but lunch can be a nice choice. http://www.gion-endo.com/menu_lunch.html
 
 # Bars
 
