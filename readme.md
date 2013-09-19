@@ -48,6 +48,12 @@ It's a my friend's recommendation. Kukuzen is a bit modern fusion kind of Kyo-ry
 
 http://r.gnavi.co.jp/k932900/lang/en/?sc_cid=foreign_bnr_pcr_en
 
+## Le Bouchon
+
+If you get tired of Japanese food, this French bistro is my favorite too. Casual, affordable, and very authentic atmosphere. Not a hi-so meal. French comfort foods.
+
+http://www.lonelyplanet.com/japan/kansai/kyoto/restaurants/french/le-bouchon
+
 # Sweets
 
 ## Krepe (Dessert cafe/bar)
