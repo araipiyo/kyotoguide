@@ -18,14 +18,15 @@ Lunch is usually much cheaper than Dinner, so maybe it's wise to try expensive r
 * Obanzai (おばんざい) is a basic family dishes in Kyoto style. Similar to Kyo-ryori, but simpler and cheaper than that.
 * Asagayu @ Hyotei restaurant (瓢亭の朝粥) is the Japan's most famous breakfast. Splurge 4500yen breakfast which I want to try someday. http://hyotei.co.jp/en/
 * Yudoufu (湯豆腐) is a extremely simple dish. Just boil tofu in a hotpot. I'm not quite sure how can it be a special dish, but two of my friends recommended it to eat in Kyoto. You can have it around Nanzenji (南禅寺)
-* Green tea: you can taste and blend your own green tea at Fukujuen. I've tried it once, and it was so much fun. If you like green tea, it can be fun. http://www.fukujuen-kyotohonten.com/english/floor.html
 * Nimono (煮物) is a simmered vegetables and some meats. I think this is one of the best thing in Kyoto. You can have it as a part of Bento or Obanzai. http://en.wikipedia.org/wiki/Nimono
 * Matsutake (松茸) is the most expensive mashroom in Japan. Autumn is the season for this one. I think you'll see if you go to fancy dinner.
 * Hamo (鱧) is a kind of fish which is a regional speciality. A soup consisted with Matsutake and Hamo (鱧と松茸の土瓶蒸し) is my favorite dish in Kyoto. October might be bit late for Hamo, but I think you can find if you have luck.
+* Japanese sweets: I know you don't like Japanese traditional confectionaries, but there are more lighter and smoother things exists. I recommend to try Kuzukiri (jerry noodle), Warabi-mochi (jelly with fantastic texture) or Mizu-yokan (lighter bean jelly) at Kagizen, but maybe it's out of season. http://www.kagizen.co.jp/en/
 
 ## Here's the foods to buy:
 
 * Chirimen sansho 縮緬山椒 (Small fish + 花椒), you can buy anywhere in Kyoto. Although I'm not really sure, it matches with Thai rice... http://kyotofoodie.com/chirimen-jako-gohan-nabe-rice/
+* Green tea: you can taste and blend your own green tea at Fukujuen. I've tried it once, and it was so much fun. If you like green tea, it can be fun. http://www.fukujuen-kyotohonten.com/english/floor.html
 
 # Restaurants
 
@@ -33,13 +34,27 @@ Lunch is usually much cheaper than Dinner, so maybe it's wise to try expensive r
 
 This is not a fashionable place, providing traditional Japanese food for serious foodies. If you'd like to try top notch Japanese food, this is the place, but price is quite expensive (around 150-200 USD per person). Reservation recommended.
 
-My favorite restaurant in Kyoto, but decor is not impressive at all. That's a problem for tourist, I guess.
+My favorite restaurant in Kyoto, but decor is not impressive at all. That's a problem as a tourist, I guess.
 
 http://tabelog.com/kyoto/A2603/A260301/26001119/
 
 ## Tempura Yasaka Endo (八坂圓堂 (えんどう))
 
-Fancy Tempura restaurant. I've been here once. Dinner is bit overpriced, but lunch can be a nice choice. http://www.gion-endo.com/english/menu_lunch.html
+Fancy Tempura restaurant. I've been here once. Dinner is a bit overpriced, but lunch can be a good deal. http://www.gion-endo.com/english/menu_lunch.html
+
+## Kukuzen (栩栩膳)
+
+It's a my friend's recommendation. Kukuzen is a bit modern fusion kind of Kyo-ryori, which is usually eaten by locals. Affordable, fancy decor, and good food. My friend is a serious foodie and native of Kyoto, so I think it's a good choice.
+
+http://r.gnavi.co.jp/k932900/lang/en/?sc_cid=foreign_bnr_pcr_en
+
+# Sweets
+
+## Krepe (Dessert cafe/bar)
+
+My friend's recommendation. You can sip some sweet cocktails or have some desserts here.
+
+http://tabelog.com/kyoto/A2603/A260301/26017560/
 
 # Bars
 
